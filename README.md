@@ -1,4 +1,4 @@
-# Radwimps – なんでもないや (movie ver.)
+# RADWIMPS – なんでもないや (movie ver.)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
